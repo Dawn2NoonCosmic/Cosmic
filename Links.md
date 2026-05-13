@@ -2,6 +2,12 @@
 > Click on any link below to start downloading directly.<br><br/>
 
 
+### 📅 2026-05-13 17:35 IR
+- 🎬 [What_space_telescopes_teach_us_about_the_universe___Amber_Straughn___TEDxCapeMay.mp4](https://github.com/Dawn2NoonCosmic/Cosmic/raw/main/dl/What_space_telescopes_teach_us_about_the_universe___Amber_Straughn___TEDxCapeMay.mp4) `22.5MB`
+
+---
+
+
 ### 📅 2026-05-13 10:46 IR
 - 🗜️ [Remembering_Kepler_Space_Telescope.mp4.zip.001](https://github.com/Dawn2NoonCosmic/Cosmic/raw/main/dl/Remembering_Kepler_Space_Telescope.mp4.zip.001) `7.3MB`
 
